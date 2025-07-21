@@ -1,6 +1,6 @@
 # Welcome!😆
 
-Hi, My name is **Joli**! I'm an undergraduate Informatics Engineering Student in Bandung Institute of Technology. Currently, i'm on my 5th semester. 
+Hi, My name is **Joli**! I'm an undergraduate Informatics Engineering Student in Bandung Institute of Technology. Currently, i'm on my 8th semester. 
 
 
 ## 📫 Find me on:
